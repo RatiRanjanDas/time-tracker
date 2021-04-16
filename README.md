@@ -11,3 +11,4 @@ Jay Shiv Shakti!
 Jay SriRam Navami!
 Jay Jagannath!
 Jay Shiv Shambhu!
+Jay Maharaj!
